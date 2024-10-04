@@ -1,3 +1,0 @@
-# Josh Maier
-
-### Education
