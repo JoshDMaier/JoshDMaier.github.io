@@ -1,1 +1,3 @@
-# joshdmaier.github.io
+# Josh Maier
+
+### Education
